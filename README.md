@@ -1,1 +1,1 @@
-Make app, go beserk..
+Make app, go berserk..
