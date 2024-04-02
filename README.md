@@ -1,3 +1,1 @@
-# Hii, I'm Harshil,
-
-Make good apps, go berserk....
+Make app, go beserks..
